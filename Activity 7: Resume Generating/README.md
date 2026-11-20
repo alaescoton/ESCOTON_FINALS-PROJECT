@@ -1,4 +1,4 @@
-# ⋆. 𐙚˚࿔ Activity 7: Generating A Resume 𝜗𝜚˚⋆
+# ⋆. 𐙚˚࿔ Activity 7: Generating A Resume 𝜗𝜚˚⋆ 
 
 <img width="1875" height="625" alt="8" src="https://github.com/user-attachments/assets/0ac2d1d7-6a1d-4707-bd60-b1294a51f0a2" />
 
