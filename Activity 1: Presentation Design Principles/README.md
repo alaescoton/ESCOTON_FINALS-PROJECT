@@ -1,4 +1,4 @@
-# ✿⋆˙♡۶ৎ . ݁ ˖ Activity 1: Presentation Design Principles ♡ ݁ ˖.۶ৎ✿⋆˙
+# ⋆. 𐙚˚࿔ Activity 1: Presentation Design Principles 𝜗𝜚˚⋆
 
 <img width="1875" height="625" alt="3" src="https://github.com/user-attachments/assets/02ef50e7-5b9e-48a7-b340-dfb59327c2f9" />
 
