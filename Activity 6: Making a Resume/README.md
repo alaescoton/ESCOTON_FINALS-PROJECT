@@ -1,4 +1,4 @@
-# ⋆. 𐙚˚࿔ Activity 6: Making A Website 𝜗𝜚˚⋆
+# ⋆. 𐙚˚࿔ Activity 6: Making A Website 𝜗𝜚˚⋆ 
 
 <img width="1875" height="625" alt="7" src="https://github.com/user-attachments/assets/45236e76-773e-4b46-8127-2f44dcad7d4b" />
 
