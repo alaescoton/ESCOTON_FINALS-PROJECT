@@ -1,4 +1,4 @@
-# ⋆.𐙚˚࿔ Activity 3: MEDSAFE – Designing Information Through Infographics 𝜗𝜚˚⋆
+# ⋆.𐙚˚࿔ Activity 3: MEDSAFE – Designing Information Through Infographics 𝜗𝜚˚⋆ 
 
 <img width="1875" height="625" alt="5" src="https://github.com/user-attachments/assets/83e00b0c-4b75-4994-ab8d-d03b4f1de241" />
 
