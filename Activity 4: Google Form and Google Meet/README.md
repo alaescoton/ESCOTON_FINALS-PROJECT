@@ -1,4 +1,4 @@
-# ⋆. 𐙚˚࿔ Activity 4: Connecting and Creating: Google Meet and Google Forms 𝜗𝜚˚⋆ 
+# ⋆. 𐙚˚࿔ Activity 4: Connecting and Creating: Google Meet and Google Forms 𝜗𝜚˚⋆  
 <img width="1875" height="625" alt="Blue Artsy Weekly Newsletter Email Header (6)" src="https://github.com/user-attachments/assets/6fc28800-033c-40c6-a33b-ea323d40c2f6" />
 
 
