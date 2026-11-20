@@ -1,14 +1,14 @@
-✿⋆˙♡۶ৎ . ݁ ˖ Activity 1: Presentation Design Principles ♡ ݁ ˖.۶ৎ✿⋆˙
+# ✿⋆˙♡۶ৎ . ݁ ˖ Activity 1: Presentation Design Principles ♡ ݁ ˖.۶ৎ✿⋆˙
 
 <img width="1875" height="625" alt="3" src="https://github.com/user-attachments/assets/02ef50e7-5b9e-48a7-b340-dfb59327c2f9" />
 
 
-ACTIVITY DESCRIPTION °❀.ೃ࿔
+# ACTIVITY DESCRIPTION °❀.ೃ࿔
 
 This activity introduced me to the fundamental principles of effective presentation design. It focused on how to organize information, select appropriate visual elements, establish a clear layout, and create slides that communicate ideas effectively. Through this activity, I explored how presentation design goes beyond simply placing text and images on slides. It requires careful consideration of the audience, purpose, readability, visual hierarchy, and consistency to make information easier to understand and remember.
 
 
-WHAT I HAVE LEARNED °❀.ೃ࿔
+# WHAT I HAVE LEARNED °❀.ೃ࿔
 
 This activity taught me that an effective presentation should communicate information clearly rather than overwhelm the audience with too much text or unnecessary decorations. I learned the importance of visual hierarchy, alignment, balance, contrast, consistency, and proper spacing. These principles helped me understand how to guide the audience's attention toward the most important information while keeping the presentation organized and visually appealing.
 
