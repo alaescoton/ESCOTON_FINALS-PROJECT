@@ -1,4 +1,4 @@
-# ✿⋆˙♡۶ৎ . ݁ ˖ Ctrl + Create: My GE 4120 Journey  ♡ ݁ ˖.۶ৎ✿⋆˙
+# ✿⋆˙♡۶ৎ . ݁ ˖ Ctrl + Create: My GE 4120 Journey  ♡ ݁ ˖.۶ৎ✿⋆˙ 
 <img width="1875" height="625" alt="Blue Artsy Weekly Newsletter Email Header (2)" src="https://github.com/user-attachments/assets/5ef35ee9-7c6a-4833-8406-4a5d39fc5913" />
 
 # ❤︎⁠ Hello! I am Ashley Love A. Escoton, 
