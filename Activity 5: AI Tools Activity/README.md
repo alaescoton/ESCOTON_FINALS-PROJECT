@@ -1,4 +1,4 @@
-# ⋆. 𐙚˚࿔ Activity 5: AI Tools Activity 𝜗𝜚˚⋆
+# ⋆. 𐙚˚࿔ Activity 5: AI Tools Activity 𝜗𝜚˚⋆ 
 <img width="1875" height="625" alt="6" src="https://github.com/user-attachments/assets/b9b3fbd6-ccf1-44b5-b267-35cd388ff6ff" />
 
 
