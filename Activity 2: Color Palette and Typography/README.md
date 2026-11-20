@@ -1,7 +1,7 @@
 # ⋆. 𐙚˚࿔ Activity 2: Color Palette and Typography 𝜗𝜚˚⋆
 <img width="1875" height="625" alt="4" src="https://github.com/user-attachments/assets/b11c7303-2647-4e53-b20d-f5256de9577f" />
 
-# ACTIVITY DESCRIPTION °❀.ೃ࿔
+# ACTIVITY DESCRIPTION °❀.ೃ࿔ 
 
 This activity focused on understanding how colors and typography influence the overall appearance, identity, and message of a design. I explored the process of selecting and combining colors to establish a consistent visual theme, as well as choosing fonts that complement one another and improve readability. For my output, I used a soft pastel-inspired color palette, including Pastel Crimson (#F39EB6), Light Yellow (#F7F6D3), Light Red (#FFE5E0), and Light Yellow (#FFFDF1). I also incorporated Amsterdam Four, Poppins Bold, and Petrona to create a distinctive visual identity. Through this activity, I learned how intentional design choices can communicate a particular mood and personality even before someone reads the actual content.
 
